@@ -1,0 +1,1 @@
+selamın aleykummms biladerinyo
